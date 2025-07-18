@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Mohd Shadab (a.k.a. @shadabsudd1232)
+# 👋 Hi, I'm Mohd Shadab (a.k.a. @sha)
 
 🎓 B.Tech CSE (AI) | 2026 Graduate  
 📍 Lucknow, India | 💼 Future Software Engineer  
